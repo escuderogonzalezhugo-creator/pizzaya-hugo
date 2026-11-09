@@ -1,4 +1,4 @@
-# Carta de PizzaYa: edición dulce
+# Carta de PizzaYa: edición dulce y salada
 
 - Margarita
 - Barbacoa
